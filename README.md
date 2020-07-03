@@ -1,0 +1,2 @@
+# selam-depo
+yeni başlangıçlar
